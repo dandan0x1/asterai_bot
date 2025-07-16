@@ -1,2 +1,2 @@
 # asterai_bot
-asterai_bot
+注册rf： https://astpoint.asterai.xyz/?ref=OSUHF
